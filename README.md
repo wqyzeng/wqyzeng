@@ -1,5 +1,4 @@
-### ![](https://tenor.com/view/ai-hayasaka-together-blushing-anime-kaguya-sama-love-is-war-gif-17948041)
-What brings you here?
+### ![](https://tenor.com/view/ai-hayasaka-together-blushing-anime-kaguya-sama-love-is-war-gif-17948041.gif)
 <!--
 **wqyzeng/wqyzeng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
