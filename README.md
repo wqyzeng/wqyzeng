@@ -1,4 +1,4 @@
-### ![](https://camo.githubusercontent.com/2a0fd448195ba253669fd4ed013c5366fe36cf65c38461650205fc52de63b08a/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f576a376c4e6a4d4e4478536d632f67697068792e676966)
+### ![](https://tenor.com/view/ai-hayasaka-together-blushing-anime-kaguya-sama-love-is-war-gif-17948041)
 What brings you here?
 <!--
 **wqyzeng/wqyzeng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
